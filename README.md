@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+This is Mounika💁‍♀️🎀.
+I'm a 3rd year B.Tech student studying at IIT Roorkee👩‍🎓.
+I'm currently exploring the Artificial Intelligence/Machine Learning and Deep Learning universe with profound interest.
+How to reach me: msudaa15@gmail.com
+
